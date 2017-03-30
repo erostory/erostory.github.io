@@ -1,5 +1,5 @@
 ---
-title: DS: The Beginning
+title: 'DS: The Beginning'
 ---
 It was the dog days of summer and we had gone over to our friends Tom and Alison's to grill and meet up with two other couples Hal and Susan, and Will and Lindsey. I'm Sam and my wife is Stephanie.
 
