@@ -1,5 +1,13 @@
 ---
+layout: post
 title: Additional Duties
+categories:
+  - group sex
+  - gangbang
+tags: [group sex]
+imagefeature: cover6.jpg
+comments: true
+share: true
 ---
 My name is Tom O'Donnell. I'm thirty-six; the Chief Engineer, for Eco-Logics Technologies. The following account was mostly told to me by Kathy, my wife of eight years. I remember it so clearly – every detail and nuance – because, for me, at least, it was the most novel, engaging, and, quite literally, fantastic story I'd ever heard.
 
